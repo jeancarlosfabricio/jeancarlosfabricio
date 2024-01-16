@@ -1,1 +1,1 @@
-![Profile views](https://gpvc.arturio.dev/[jeancarlosfabricio])
+![Profile views](https://gpvc.arturio.dev/jeancarlosfabricio)
